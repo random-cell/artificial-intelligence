@@ -1,1 +1,1 @@
-russian technological university(РТУ МИРЭА) artificial intelligence practical workы
+russian technological university(РТУ МИРЭА) artificial intelligence practical work
